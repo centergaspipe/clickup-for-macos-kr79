@@ -1,4 +1,4 @@
-
+ClickUp for macOS exclusive Macro: database templates & task automation offers the most advanced ClickUp for macOS macro, with database templates and task automation. Ideal for
 
 
 
